@@ -1,0 +1,2 @@
+# namecheap-promo-code
+NameCheap Promo Code for Domains, Hosting, SSL and more FREE Whois Privacy Protection (new orders and renewals) on NameCheap. 90% Off Get .xyz Domain for just $0.99 on NameCheap. Up to 50% Off Cheap Shared Hosting at Namecheap. 40% OFF Cheap Reseller Hosting Coupon on NameCheap. 46% OFF EV SSL Certificate on Namecheap.com. 32% Off EV Multi Domain SSL Certificate on Namecheap. Big Sale on SSL Up to 49% Off with Namecheap 10% off com, net, org, biz registrations/transfers on NameCheap.see more www.couponhosters.com.
